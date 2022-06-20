@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @Th3R3al0
 - 👀 I’m interested in geeky stuff.
-- 🌱 I’m currently learning UNity, Java, and others.
+- 🌱 I’m currently learning Godot, Unity, Java, and others.
+- Practicing blender and other animations
 - 💞️ I’m looking to collaborate on reldens, when im that good or similar project with crypto hopefully one day ...
 - 📫 How to reach me please don't - i check when i can here, and where else i'am when i'am there...
 
