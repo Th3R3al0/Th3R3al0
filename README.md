@@ -14,7 +14,7 @@ You can click the Preview link to take a look at your changes.
 Interesting files and work iäm planning on reading, decifering.
 Making and most important of it all, have a life for an a intrest:
 
-
+https://github.com/stars
 
 Machine Learning
 https://github.com/shanalikhan/adventures-in-ml-code
