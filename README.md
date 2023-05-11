@@ -11,10 +11,11 @@ You can click the Preview link to take a look at your changes.
 --->
 
 
-Interesting files and work iäm planning on reading, decifering.
-Making and most important of it all, have a life for an a intrest:
+Interesting files and work i'am planning on reading, decifering.
+Making and most important of it all, have a intrest in:
 
 https://github.com/stars
 
+Plans of learning:
 Machine Learning
 https://github.com/shanalikhan/adventures-in-ml-code
