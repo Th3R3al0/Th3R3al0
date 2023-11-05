@@ -1,5 +1,15 @@
-- 👋 Hi Howdy and fuck it I swear a lot. Not really, just sick of this bull - called a puter c=)=8 Santa drooling
-I’am also http://github.com/GeoDk and even this profile http://github.com/Th3R3al0
+- 👋 Hi Howdy and fuck it I swear a lot.
+Not really, just sick of this bull - called a put't'er
+ c===c-8.) 
+Santa drooling.. Or is it?
+
+I’am also including into this shjit.. x.(0.o)
+http://github.com/GeoDk
+
+
+ and even this profile http://github.com/Th3R3al0
+ <--- This wanker,, NO UP!
+ 
 
 - 👀 I’am an little bit loco on the idea of music, can move even a vhs tape. That's what I found out as an little man, really just a boy
 How even af Siemens x10 could be extended with an dbt antenna. Or even just abuse the radio network.
